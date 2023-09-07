@@ -1,2 +1,2 @@
 # Santos19
-Subscribe channel samtos1905
+Subscribe channel santos1905
